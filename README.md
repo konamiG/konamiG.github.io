@@ -1,0 +1,1 @@
+# konamiG.github.io
